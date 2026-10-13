@@ -1,0 +1,1 @@
+# Hotshot-mac-Richarge
